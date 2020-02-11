@@ -1,0 +1,1 @@
+The challenge will be available on February 12th.
